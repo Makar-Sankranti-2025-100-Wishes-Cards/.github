@@ -14,3 +14,4 @@ Makar Sankranti is more than just a festival; it marks a cosmic phenomenon with 
 - **Harvest Festival:** It is a time
 - 
   [Click Here to Read More](https://pmnews.in/makar-sankranti-2025-wishes-date-time-and-celebration/)
+  [Resize Image to 20kb](https://resizeimage20kb.tech/)
